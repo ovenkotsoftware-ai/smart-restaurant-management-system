@@ -129,8 +129,4 @@ Successful restaurants are no longer defined solely by the quality of their food
 Modern restaurant management software provides the tools needed to connect every aspect of restaurant operations into a single, intelligent platform. As technology continues to evolve, organizations such as **Gritstone Technologies** are helping businesses leverage innovative digital solutions to streamline workflows, improve operational performance, and support sustainable growth.
 https://www.gritstonetech.com/
 
-Restaurants that invest in smart management technologies today are building a stronger foundation for profitability, scalability, and long-term success.
 
-### Call to Action
-
-**Transform restaurant operations with smarter technology and automation.**
